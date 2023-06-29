@@ -1,4 +1,3 @@
-18039293226
 may 10 2017 join xinyihua medical technology co., ltd
 
 china weibo.com uid 5526878125
